@@ -36,19 +36,53 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-1. Epitaphium Concubinae.
+1. The explanation of the Frontiſpice.
+THE LEVITES
+REVENGE.
+by
+Robert
+Gomerſall.LONDON.
+Printed for
+Iohn Marriott
+1628.
+1. TO
+HIS VVORTHILY
+RESPECTED
+FRIEND,
+MASTER
+BARTEN HOLYDAY
+ARCH-DEACON
+OF OXFORD.
 
-1. Engliſhed thus.
+1. To the Reader.
 
+1. To my learned and highly
+eſteemed Friend, Mr.
+ROBERT GOMERSALL.
+Epitaphium Concubinae.Quae triſtis ignes, Gibeah, paſſa eſt tuos,Cultrumquè sponſi, cuius amplexum p
+    _ Epitaphium Concubinae.
+
+    _ Engliſhed thus.
+PSAL. 9. 2.
+I will be glad and reioyce in thee, yea my
+Songs will I make of thy name, O thou
+moſt Hi
 #####Body#####
 
-1. Canto I.
+1. THE
+LEVITES
+REVENGE.
 
-1. Canto II.
+    _ Canto I.
 
-1. Canto III.
+    _ Canto II.
 
-1. Ʋpon our vaine flattery of our ſelues, that the ſucceeding
+    _ Canto III.
+
+1. A Thankſgiuing for a recouery
+from a burning Feauer.
+
+    _ Ʋpon our vaine flattery of our ſelues, that the ſucceeding
 times will be better then the former.
 
 **Types of content**
